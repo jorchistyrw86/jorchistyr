@@ -1,0 +1,2 @@
+# jorchistyr
+ing en sistemas 
